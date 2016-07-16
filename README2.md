@@ -1,2 +1,0 @@
-# summerland
-Summerland Developments
